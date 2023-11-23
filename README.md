@@ -1,7 +1,5 @@
-### Hi there 👋
-
 <!--
-**NOBITA-VIRUS-XD/NOBITA-VIRUS-XD** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+**Dark-Cyber-07/Dark-Cyber-07** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
 
@@ -14,7 +12,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-<p align="left"> <img src="https://komarev.com/ghpvc/?username=NOBITA-VIRUS-XD&label=Profile%20views&color=eb4d3d&style=flat-square" alt="NOBITA-VIRUS-XD" /> </p>
+<p align="left"> <img src="https://komarev.com/ghpvc/?username=Dark-Cyber-07&label=Profile%20views&color=eb4d3d&style=flat-square" alt="Dark-Cyber-07" /> </p>
 </i></b></h3>
 <h3 align="center">
   <img src="https://emoji.discord.st/emojis/768b108d-274f-4f44-a634-8477b16efce7.gif" width="25">
@@ -26,16 +24,16 @@ Here are some ideas to get you started:
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?color=%23F70B10&size=27&lines=𝙸+𝙰𝙼+SHANTO+HASAN;+𝙸𝚃'𝚜+𝙽𝙾𝚃+𝙰+𝙹𝚄𝚂𝚃+𝙽𝙰𝙼𝙴+𝙱𝚁𝙾;𝙸𝚃'𝚜+𝙰+𝙱𝚁𝙰𝙽𝙳;𝚃𝙷𝙰𝙽𝙺+𝚈𝙾𝚄+𝙴𝚅𝙴𝚁𝚈𝙾𝙽𝙴;𝙻𝙾𝚅𝚁+𝚄+𝙰𝙻𝙻+𝙵𝚁𝙸𝙴𝙽𝙳𝚂)](https://git.io/typing-svg)
 
 <h3><b><i>🏆 Github Statistics :</i></b></h3>
-<a href="https://github.com/NOBITA-VIRUS-XD"><img title="trophy" src="https://github-profile-trophy.vercel.app/?username=NOBITA-VIRUS-XD&theme=monokai"></a>
+<a href="https://github.com/Dark-Cyber-07"><img title="trophy" src="https://github-profile-trophy.vercel.app/?username=Dark-Cyber-07&theme=monokai"></a>
 </p>
 <p align="center"> 
  𝚅𝙸𝚂𝙸𝚃𝙾𝚁𝚂 𝙲𝙾𝚄𝙽𝚃
- <img src="https://profile-counter.glitch.me/NOBITA-VIRUS-XD/count.svg" />
+ <img src="https://profile-counter.glitch.me/Dark-Cyber-07/count.svg" />
 </p>
 
-![20200808_160757](https://raw.githubusercontent.com/NOBITA-VIRUS-XD/NOBITA-VIRUS-XD/main/Screenshot_20220110-170001~2.png)
+![20200808_160757](https://raw.githubusercontent.com/Dark-Cyber-07/Dark-Cyber-07/main/Screenshot_20220110-170001~2.png)
 
-![20200808_160757](https://raw.githubusercontent.com/NOBITA-VIRUS-XD/NOBITA-VIRUS-XD/main/106824690-8dd73a00-66ad-11eb-89e2-53e13ac6f594.gif)
+![20200808_160757](https://raw.githubusercontent.com/Dark-Cyber-07/Dark-Cyber-07/main/106824690-8dd73a00-66ad-11eb-89e2-53e13ac6f594.gif)
 
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-1.svg">
 
@@ -43,7 +41,7 @@ Here are some ideas to get you started:
 
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
 
-- ➪ 𝙽𝙰𝙼𝙴 :- SHANTO HASAN
+- ➪ 𝙽𝙰𝙼𝙴 :- MD SHANTO HASAN
 
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
 
@@ -62,16 +60,15 @@ Here are some ideas to get you started:
 
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
 
-- ➪ 𝙵𝙰𝙲𝙴𝙱𝙾𝙾𝙺 :- [SHANTO](https://www.facebook.com/Shanto.vau404)
+- ➪ 𝙵𝙰𝙲𝙴𝙱𝙾𝙾𝙺 :- [MD SHANTO HASAN](https://www.facebook.com/paul.morris.12914?mibextid=rS40aB7S9Ucbxw6v)
 
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
 
-- ➪𝙵𝙰𝙲𝙴𝙱𝙾𝙾𝙺  𝙵𝙰𝙶𝙴 :- [ SHANTO HASANシ︎](https://www.facebook.com/profile.php?id=100069894818463)
+- ➪𝙵𝙰𝙲𝙴𝙱𝙾𝙾𝙺  𝙵𝙰𝙶𝙴 :- [DARK CYBER](https://www.facebook.com/DARK.CYBER.07)
 
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
 
-- ➪ 𝙵𝙰𝙲𝙴𝙱𝙾𝙾𝙺 𝙶𝚁𝚄𝙿 :- [BD Y
-TERMUX ZONE✅](https://www.facebook.com/groups/326881999012937/)
+- ➪ 𝙵𝙰𝙲𝙴𝙱𝙾𝙾𝙺 𝙶𝚁𝚄𝙿 :- [DARK CYBER COMMUNITY](https://facebook.com/groups/316554827306831/)
 
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
 
@@ -97,7 +94,7 @@ TERMUX ZONE✅](https://www.facebook.com/groups/326881999012937/)
 
 <p align="left"> <a href="https://getbootstrap.com" target="_blank"> <img src="https://raw.githubusercontent.com/devicons/devicon/master/icons/bootstrap/bootstrap-plain-wordmark.svg" alt="bootstrap" width="40" height="40"/> </a> <a href="https://www.cprogramming.com/" target="_blank"> <img src="https://raw.githubusercontent.com/devicons/devicon/master/icons/c/c-original.svg" alt="c" width="40" height="40"/> </a> <a href="https://www.w3schools.com/cpp/" target="_blank"> <img src="https://raw.githubusercontent.com/devicons/devicon/master/icons/cplusplus/cplusplus-original.svg" alt="cplusplus" width="40" height="40"/> </a> <a href="https://www.w3schools.com/cs/" target="_blank"> <img src="https://raw.githubusercontent.com/devicons/devicon/master/icons/csharp/csharp-original.svg" alt="csharp" width="40" height="40"/> </a> <a href="https://www.w3schools.com/css/" target="_blank"> <img src="https://raw.githubusercontent.com/devicons/devicon/master/icons/css3/css3-original-wordmark.svg" alt="css3" width="40" height="40"/> </a> <a href="https://git-scm.com/" target="_blank"> <img src="https://www.vectorlogo.zone/logos/git-scm/git-scm-icon.svg" alt="git" width="40" height="40"/> </a> <a href="https://heroku.com" target="_blank"> <img src="https://www.vectorlogo.zone/logos/heroku/heroku-icon.svg" alt="heroku" width="40" height="40"/> </a> <a href="https://www.w3.org/html/" target="_blank"> <img src="https://raw.githubusercontent.com/devicons/devicon/master/icons/html5/html5-original-wordmark.svg" alt="html5" width="40" height="40"/> </a> <a href="https://www.java.com" target="_blank"> <img src="https://raw.githubusercontent.com/devicons/devicon/master/icons/java/java-original.svg" alt="java" width="40" height="40"/> </a> <a href="https://developer.mozilla.org/en-US/docs/Web/JavaScript" target="_blank"> <img src="https://raw.githubusercontent.com/devicons/devicon/master/icons/javascript/javascript-original.svg" alt="javascript" width="40" height="40"/> </a> <a href="https://laravel.com/" target="_blank"> <img src="https://raw.githubusercontent.com/devicons/devicon/master/icons/laravel/laravel-plain-wordmark.svg" alt="laravel" width="40" height="40"/> </a> <a href="https://www.linux.org/" target="_blank"> <img src="https://raw.githubusercontent.com/devicons/devicon/master/icons/linux/linux-original.svg" alt="linux" width="40" height="40"/> </a> <a href="https://www.mysql.com/" target="_blank"> <img src="https://raw.githubusercontent.com/devicons/devicon/master/icons/mysql/mysql-original-wordmark.svg" alt="mysql" width="40" height="40"/> </a> <a href="https://www.php.net" target="_blank"> <img src="https://raw.githubusercontent.com/devicons/devicon/master/icons/php/php-original.svg" alt="php" width="40" height="40"/> </a> <a href="https://www.python.org" target="_blank"> <img src="https://raw.githubusercontent.com/devicons/devicon/master/icons/python/python-original.svg" alt="python" width="40" height="40"/> </a> <a href="https://tailwindcss.com/" target="_blank"> <img src="https://www.vectorlogo.zone/logos/tailwindcss/tailwindcss-icon.svg" alt="tailwind" width="40" height="40"/> </a> </p>
 
-<h2><img width="25" src="https://github.com/NOBITA-VIRUS-XD/NOBITA-VIRUS-XD/blob/main/assets/icons/icon-skills.png" /><i> Skills & DevTools Stack :</i></h2>
+<h2><img width="25" src="https://github.com/Dark-Cyber-07/Dark-Cyber-07/blob/main/assets/icons/icon-skills.png" /><i> Skills & DevTools Stack :</i></h2>
 
 ![Python](https://img.shields.io/badge/-Python-05122A?style=flat&logo=python)&nbsp;
 ![JavaScript](https://img.shields.io/badge/-JavaScript-05122A?style=flat&logo=javascript)&nbsp;
@@ -115,12 +112,12 @@ TERMUX ZONE✅](https://www.facebook.com/groups/326881999012937/)
 
 <table border="1">
   <tr>
-    <td valign="top"><a href="https://github.com/NOBITA-VIRUS-XD/github-readme-stats"> <img src="https://github-readme-stats.vercel.app/api?username=NOBITA-VIRUS-XD&count_private=true&show_icons=true&icon_color=FFA500&title_color=f4791f&bg_color=0,03071e,0F2027,03071e&text_color=abcdef&border_radius=10" alt ="NOBITA-VIRUS-XD GitHub stats"/></td> </a>
-    <td valign="top"> <a href="https://github.com/NOBITA-VIRUS-XD/github-readme-stats"> <img src="https://github-readme-stats.vercel.app/api/top-langs/?username=NOBITA-VIRUS-XD&layout=compact&langs_count=10" alt ="Top Languages"/></td>
+    <td valign="top"><a href="https://github.com/Dark-Cyber-07/github-readme-stats"> <img src="https://github-readme-stats.vercel.app/api?username=Dark-Cyber-07&count_private=true&show_icons=true&icon_color=FFA500&title_color=f4791f&bg_color=0,03071e,0F2027,03071e&text_color=abcdef&border_radius=10" alt ="Dark-Cyber-07 GitHub stats"/></td> </a>
+    <td valign="top"> <a href="https://github.com/Dark-Cyber-07/github-readme-stats"> <img src="https://github-readme-stats.vercel.app/api/top-langs/?username=Dark-Cyber-07&layout=compact&langs_count=10" alt ="Top Languages"/></td>
     </a>
   </tr>
    <tr>
-    <td colspan="2" align="center"> <a href="https://git.io/streak-stats"> <img src="http://github-readme-streak-stats.herokuapp.com?user=NOBITA-VIRUS-XD&hide_border=true&background=f6f8fa&stroke=001427&ring=e36414&fire=e36414&currStreakNum=03045e&sideNums=03045e&currStreakLabel=03045e&sideLabels=240046&dates=fb5607&date_format=j%20M%5B%20Y%5D" alt ="NOBITA-VIRUS-XD GitHub Readme Streak Stats"/> </a>  </td> 
+    <td colspan="2" align="center"> <a href="https://git.io/streak-stats"> <img src="http://github-readme-streak-stats.herokuapp.com?user=Dark-Cyber-07&hide_border=true&background=f6f8fa&stroke=001427&ring=e36414&fire=e36414&currStreakNum=03045e&sideNums=03045e&currStreakLabel=03045e&sideLabels=240046&dates=fb5607&date_format=j%20M%5B%20Y%5D" alt ="Dark-Cyber-07 GitHub Readme Streak Stats"/> </a>  </td> 
     
   </tr>
 </table>
@@ -128,11 +125,11 @@ TERMUX ZONE✅](https://www.facebook.com/groups/326881999012937/)
 
 <h2><img width="28" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/icons/icon-graph.png" /><i> GitHub Contribution Graph :</i></h2>
 
-[![Kshitij's github activity graph](https://my-activity-graph-instance.herokuapp.com/graph?username=NOBITA-VIRUS-XD&theme=react-dark&area=true&hide_border=true)](https://github.com/Dark-Cyber-07/github-readme-activity-graph)
+[![Kshitij's github activity graph](https://my-activity-graph-instance.herokuapp.com/graph?username=Dark-Cyber-07&theme=react-dark&area=true&hide_border=true)](https://github.com/Dark-Cyber-07/github-readme-activity-graph)
 
-<a href="https://github.com/NOBITA-VIRUS-XD/SH-UID"><img title="SH-UID" src="https://github-readme-stats.vercel.app/api/pin/?username=NOBITA-VIRUS-XD&repo=SH-UID&theme=gotham"></a>
-<a href="https://github.com/NOBITA-VIRUS-XD/SH-CR3K"><img title="SH-CR3K" src="https://github-readme-stats.vercel.app/api/pin/?username=NOBITA-VIRUS-XD&repo=SH-CR3K&theme=gotham"></a>
-<a href="https://github.com/NOBITA-VIRUS-XD/SH2K9"><img title="SH2K9" src="https://github-readme-stats.vercel.app/api/pin/?username=NOBITA-VIRUS-XD&repo=SH2K9&theme=gotham"></a>
-<a href="https://github.com/NOBITA-VIRUS-XD/BD-11"><img title="BD-11" src="https://github-readme-stats.vercel.app/api/pin/?username=NOBITA-VIRUS-XD&repo=BD-11&theme=gotham"></a>
-<a href="https://github.com/NOBITA-VIRUS-XD/BD-08"><img title="BD-08" src="https://github-readme-stats.vercel.app/api/pin/?username=NOBITA-VIRUS-XD&repo=BD-08&theme=gotham"></a>
+<a href="https://github.com/Dark-Cyber-07/SRK_NUM"><img title="SRK_NUM" src="https://github-readme-stats.vercel.app/api/pin/?username=Dark-Cyber-07&repo=SRK_NUM&theme=gotham"></a>
+<a href="https://github.com/Dark-Cyber-07/SH-CR3K"><img title="SH-CR3K" src="https://github-readme-stats.vercel.app/api/pin/?username=Dark-Cyber-07&repo=SH-CR3K&theme=gotham"></a>
+<a href="https://github.com/Dark-Cyber-07/SH2K9"><img title="SH2K9" src="https://github-readme-stats.vercel.app/api/pin/?username=Dark-Cyber-07&repo=SH2K9&theme=gotham"></a>
+<a href="https://github.com/Dark-Cyber-07/BD-11"><img title="BD-11" src="https://github-readme-stats.vercel.app/api/pin/?username=Dark-Cyber-07&repo=BD-11&theme=gotham"></a>
+<a href="https://github.com/Dark-Cyber-07/BD-08"><img title="BD-08" src="https://github-readme-stats.vercel.app/api/pin/?username=Dark-Cyber-07&repo=BD-08&theme=gotham"></a>
 
